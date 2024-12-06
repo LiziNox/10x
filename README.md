@@ -1,1 +1,1 @@
-# 10x
+# 10x (Lizi Devadze)
